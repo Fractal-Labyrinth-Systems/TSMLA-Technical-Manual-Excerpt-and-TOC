@@ -87,6 +87,8 @@ This repository contains a selected excerpt from the TSMLA™ Technical Manual, 
 
 To request access to the full technical manual or explore NDA-based collaboration, please contact:
 
-**research@fractalconsciousness.ai**
+Fractal Labyrinth Systems LLC  
+- **Research:** research@fractallabyrinthsystems.com  
+- **Founder:** califa@fractallabyrinthsystems.com 
 
 Copyright © 2025 Fractal Labyrinth Systems LLC. All rights reserved.
